@@ -4,7 +4,10 @@
 - 💞️ I’m looking to collaborate on tough projects
 - 📫 How to reach me arc.emmanueloriyomi@gmail.com
 - 😄 Pronouns: God is King
-- ⚡ Fun fact: Fun
+- ⚡ Fun fact: Fun Ayomi is my girlfriend
+- she's freaky freaky
+jjjjjj
+ she's sexy
 
 <!---
 1zer0s/1zer0s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
